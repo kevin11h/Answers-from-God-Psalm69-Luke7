@@ -4,3 +4,7 @@ Then Jesus answered his thoughts. "Simon," he said to the Pharisee, "I have some
 
 
 But I keep praying to you, LORD, hoping this time you will show me favor. In your unfailing love, O God, answer my prayer with your sure salvation.
+
+![](https://i.pinimg.com/originals/30/d6/41/30d6411e9c968992df9f66ae08ed7aa5.jpg)
+
+![](https://i.pinimg.com/originals/30/d6/41/30d6411e9c968992df9f66ae08ed7aa5.jpg)
